@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zazelik
-- 👀 I’m interested in good practice in tech support.
+- 👀 I’m interested in good practice in Tech Support.
 - 🌱 I’m currently learning Learning Management Systems.
 - 💞️ I’m looking to collaborate on Slack (I know, not much to do with LMS).
 - 📫 How to reach me TO ADD (except if ADHD kicks in)
